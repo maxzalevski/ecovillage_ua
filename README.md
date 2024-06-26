@@ -8,6 +8,7 @@ The mission of the organisation is to unite and support the development of ecovi
 It was inspired by the European network of ecovillages [GEN Europe](https://gen-europe.org/).
 
 [ Dashboard Notion](https://genukraine.notion.site/Dashboard-5619c0028fac421c88f01f26459d91da)
+[Sociocratic structure](https://infograph.venngage.com/pl/IGJegrdA2zY)
 
 [Media about us](https://docs.google.com/document/d/1fV_rTXJO5YMM3SuRKxwM3_vldlGo7IoQbaEJ99khfwY/edit#heading=h.13bo382slzmm)
 
