@@ -17,6 +17,7 @@ It was inspired by the European network of ecovillages [GEN Europe](https://gen-
 
 Catalog 
 [2024](https://drive.google.com/file/d/1KHmnMeuD211ogTGxvpsA2BjK0Vy_UdlB/view)
+
 Reports
 
 [Five years in 30 min](https://www.canva.com/design/DAF8DPxyhbQ/xkWrvLCyC0f0UIaZKejMoQ/edit)
