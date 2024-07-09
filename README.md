@@ -15,11 +15,12 @@ It was inspired by the European network of ecovillages [GEN Europe](https://gen-
 
 [Media about us](https://docs.google.com/document/d/1fV_rTXJO5YMM3SuRKxwM3_vldlGo7IoQbaEJ99khfwY/edit#heading=h.13bo382slzmm)
 
-Catalog 
+Ecovillage Catalog 
 
 [UA 2024](https://drive.google.com/file/d/1KHmnMeuD211ogTGxvpsA2BjK0Vy_UdlB/view)
 
 [ENG 2024](https://docs.google.com/document/d/1krCSop3Q_7oCT_Ahkcewwyb6aHeH0_nplS6xi40waRM/edit)
+
 Reports
 
 [Five years in 30 min](https://www.canva.com/design/DAF8DPxyhbQ/xkWrvLCyC0f0UIaZKejMoQ/edit)
